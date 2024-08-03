@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nguyen Thi Yen Ly. A friendly name is Cindy ^^
-- 👀 I’m interested in play chess, detective fiction.
+- 👀 I’m interested in playing chess, detective fiction.
 - 🌱 I’m currently learning Data Communication and Computer Networks
 - 😄 Pronouns: C-I-N-D-Y
 - ⚡ Fun fact: I am an otaku. ^^
